@@ -1,7 +1,5 @@
 Date: 2016-03-01
 Tags: Appalachian Trail
-Permalink: appalachiantrail
-Page: yes
 
 # Appalachian Trail
 
@@ -22,5 +20,3 @@ Túráztam, nem is keveset: napi átlag 32 km volt szükséges ahhoz, hogy elér
 ## Ejha, ez kemény! És készültél?
 
 Hogyne! Először is imádok túrázni és idehaza sem esett nehezemre, hogy majd minden hétvégén teljesítmény- vagy csak úgy túrázással múlassam az időt és élvezzem a természet lágy ölét. Egy ilyen hosszú túrán egyébként akármilyen edzetlenül is kezdesz, néhány hét után már mindenhogy életed formájában vagy és semmi sem lehetetlen - de persze miért ne indulnék már alapból formában, ha egyszer készülhetek? Másodszor, nagyon fontos átgondolni és letesztelni a túrafelszerelést - egy hosszú távú túrán a minimalizmus és az ultrakönnyű a nyerő. Harmadszor pedig, a lelkiek: én már biztosan tudom, hogy egy ilyen túra sikere fejben dől el.
-
-## [Itt vannak a posztok!](http://nyooc.blot.im/tagged/appalachian%20trail)
