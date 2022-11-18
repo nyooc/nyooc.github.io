@@ -3,7 +3,7 @@ Tags: Appalachian Trail
 
 # Appalachian Trail
 
-2013 és 2014 őszén végigtúráztam a keleti Egyesült Államok [Appalache Gyalogösvényét](http://en.wikipedia.org/wiki/Appalachian_Trail) Georgia államtól Maine államig, ennek lenyomata ez a napló. A 3500 kilométeres túra összesen 110 napig tartott, első alkalommal augusztus közepétől október végéig (2.5 hónap), másodszorra ismét augusztus közepétől szeptember végéig (1.5 hónap). A posztok teljes listáját az [Appalachian Trail](http://nyooc.blot.im/tagged/appalachian%20trail) tag alatt találjátok, a legelején néhány bevezető poszttal, a túrák végén összegzésekkel. Olvassátok vágyakozással, hehe!
+2013 és 2014 őszén végigtúráztam a keleti Egyesült Államok [Appalache Gyalogösvényét](http://en.wikipedia.org/wiki/Appalachian_Trail) Georgia államtól Maine államig, ennek lenyomata ez a napló. A 3500 kilométeres túra összesen 110 napig tartott, első alkalommal augusztus közepétől október végéig (2.5 hónap), másodszorra ismét augusztus közepétől szeptember végéig (1.5 hónap). Minden nap írtam posztot, a legelején néhány bevezető darabbal, a túrák végén összegzésekkel. Olvassátok vágyakozással, hehe!
 
 ## Ú, ilyen sok időre?
 
