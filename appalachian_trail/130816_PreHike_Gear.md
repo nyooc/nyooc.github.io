@@ -55,7 +55,8 @@ listámból majd úgyis láthatod, de rendben van:
   De jók, úgy hallottam.
 - És még rengeteg, de tényleg végtelen sok apró név, akiket nem is ismerek, csak úgy néha feltűnnek
   egy-egy híressé váló jó cuccal: [Farpointe Outdoor Gear](https://www.farpointeog.com/),
-  [Allmansright](https://www.allmansright.com/), ...
+  [Allmansright](https://www.allmansright.com/), [Waymark Gear Co](https://waymarkgearco.com/), 
+  [Chicken Tramper Gear](https://chickentrampergear.com/)...
 
 A nagy gyártók szépen lassan azért fejlődnek, de leginkább az látszik, hogy bizonyos márkák jobban
 kiszolgálják azokat, akik nem a gyönyörű színükért vesznek meg egy héjkabátot. Mondjak ilyent is? 
