@@ -1,6 +1,6 @@
 # I am Nyooc
 
-![nyooc’s GitHub image](https://crd.so/i/nyooc)
+Nyooc is an intentionally wrongly typed word for the number 8 in Hungarian.
 
 ## Hike: Appalachian Trail Part I (2013)
 
